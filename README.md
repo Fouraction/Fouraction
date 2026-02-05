@@ -1,4 +1,3 @@
-This is an alt account , oomfs dont need to add this to their friendlist :3 
 
 I'll probably decorate this properlyh laytour for now check my links!! Strawpage is a wip >_#
 <!--
