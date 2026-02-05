@@ -1,4 +1,8 @@
 
+![](https://komarev.com/ghpvc/?username=Fouraction&+color=blue&label=★)
+
+
+
 I'll probably decorate this properlyh laytour for now check my links!! Strawpage is a wip >_#
 <!--
 **Fouraction/Fouraction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
