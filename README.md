@@ -1,7 +1,7 @@
 
 <div align="center">
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+am+Evil)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+am+Evil)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=Fouraction&+color=blue&label=★)
 
