@@ -1,9 +1,21 @@
 
+<div align="center">
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+am+Evil)](https://git.io/typing-svg)
+
 ![](https://komarev.com/ghpvc/?username=Fouraction&+color=blue&label=★)
 
 
 
-I'll probably decorate this properlyh laytour for now check my links!! Strawpage is a wip >_#
+![image](https://i.pinimg.com/736x/cf/bf/79/cfbf790a9edc1b8c2cf8f51055960d48.jpg)
+
+
+
+
+
+</div>
+
+
 <!--
 **Fouraction/Fouraction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
