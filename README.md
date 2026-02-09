@@ -2,7 +2,7 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=Fouraction&+color=green&label=★)
+![](https://komarev.com/ghpvc/?username=Fouraction&+color=darkgreen&label=★)
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2CF75C&width=435&lines=This+is+all+l%E2%80%99ll+ever+be....+;And+you+won%E2%80%99t+take+that+away+from+me!)](https://git.io/typing-svg)
