@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=Fouraction&+color=grey&label=★)
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=900101&width=435&lines=I+have+the+thing+you+love;But+the+need+in+me+is+way+too+much;If+I+taste+you+will+we+know;If+love+kills+or+makes+you+whole)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5A0000&width=435&lines=Too+late%2C+too+late+to+love+you+again;I+hate+hate+hate+hate+hate+hate+hate;hate+hate+hate+hate+hate+hate+You.)](https://git.io/typing-svg)
 
 ![image](https://i.pinimg.com/1200x/05/9d/33/059d336b2ad201d08bbc2dd6122f8e9d.jpg)
 
