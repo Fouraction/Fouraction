@@ -7,7 +7,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70765&width=435&lines=The+smell+of+nauseating+caffeine;The+sensation+of+that+vile+heat)](https://git.io/typing-svg)
 
-![image](https://i.pinimg.com/736x/70/99/0b/70990b86e4c92e42bf9922bd404af642.jpg)
+![image](https://i.pinimg.com/736x/96/1d/54/961d545e95c1097ab847cc12459c080a.jpg)
 
 
 
