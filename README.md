@@ -7,7 +7,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=900101&width=435&lines=You're+coming+back;+And+it's+the+end+of+the+world;We're+starting+over+;+And+I+love+you+darling)](https://git.io/typing-svg)
 
-![image](https://i.pinimg.com/736x/96/1d/54/961d545e95c1097ab847cc12459c080a.jpg)
+![image](https://i.pinimg.com/1200x/05/9d/33/059d336b2ad201d08bbc2dd6122f8e9d.jpg)
 
 
 
